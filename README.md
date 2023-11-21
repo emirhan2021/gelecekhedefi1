@@ -1,1 +1,2 @@
 # gelecekhedefi1
+bolumumu secmemdeki en onemli etken gelecekte bu bolumun revacta olacagindan emin olmam oldu. kucuklukten beri elektronik aletlere ilgi duydum ve kendimi nasil gelistirebilecegimin arastirmasini yaptim. bolumumden gayet memnunum ilerde ulkem ve milletim icin faydali calismalar yapmak istiyorum. eger gereken sartlar olusursa ulkemi yurtdisinda da temsil edip gururlandirmak istiyorum. suanlik aktif ve realist hedefim okulumu basariyla bitirmek.
